@@ -1,1 +1,1 @@
-# lancy-company-profile-2026
+# Lancy-company-profile-2026
